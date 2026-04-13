@@ -1,4 +1,0 @@
-i am xray
-pandu
-sakshi rang
-gafmi
